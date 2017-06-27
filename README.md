@@ -7,4 +7,4 @@ This is the biggest one from my wishes.
 
 But for nowadays my major goal is getting my first job as a junior.
 
-Sorry for grammar mistakes :-)
+Sorry for grammar mistakes. I am strong in reading but not in writing :-D
